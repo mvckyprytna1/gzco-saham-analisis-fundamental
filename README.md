@@ -1,0 +1,1 @@
+# gzco-saham-analisis-fundamental
